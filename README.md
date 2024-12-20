@@ -7,7 +7,7 @@
 
 <br>
 
-- 👨‍💻 Here is my portfolio:( https://prajaktap50.github.io/personal-portfolioo/)
+- 👨‍💻 Here is my portfolio:(  https://prajaktap60.github.io/personal-portfolioo/)
 
 - 📫 How to reach me *prajaktap675@gmail.com*
 
